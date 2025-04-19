@@ -1,0 +1,1 @@
+# -Carte-Thermique-des-Temp-ratures-Mondiales-1753---2015-
